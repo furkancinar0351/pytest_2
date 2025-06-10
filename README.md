@@ -1,0 +1,2 @@
+# KAYIT OLMA UYGULAMASI📄
+
